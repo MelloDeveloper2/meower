@@ -1,2 +1,2 @@
 # meower
-meower scratch revival
+credit to meower media and mikedev
